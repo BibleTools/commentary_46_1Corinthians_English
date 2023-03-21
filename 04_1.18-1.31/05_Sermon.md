@@ -1,0 +1,20 @@
+# Sermon
+
+Dear brothers and sisters in Christ,
+
+Today, we will be delving into a passage from 1 Corinthians 1:18-31 which highlights the difference between the wisdom of God and the wisdom of the world. As we explore this passage, I would like us to consider the following questions: What is the context of the passage? What is the main message or theme of the passage? What message or lesson do we want the congregation to take away from the sermon? How can we make the sermon relevant and applicable to the lives of the congregation members? What are some potential challenges or objections that someone might have to the message of the sermon, and how can those be addressed? Are there any important theological or doctrinal principles that need to be emphasized or clarified in relation to the passage?
+
+Firstly, let us consider the context of the passage. In this letter to the Corinthians, Paul is addressing a church that is struggling with disunity and division. The people are divided into factions, each claiming allegiance to different leaders. Paul is concerned about this and wants to bring them back to the unity of the gospel.
+
+Secondly, let us consider the main message or theme of the passage. Paul emphasizes the difference between the wisdom of God and the wisdom of the world. He points out that the message of the cross is foolishness to the world, but to those who are being saved, it is the power of God. He reminds the Corinthians that God chose the foolish things of the world to shame the wise, the weak things to shame the strong, and the lowly things of the world and the despised things to nullify the things that are, so that no one may boast before him.
+
+Thirdly, what message or lesson do we want the congregation to take away from the sermon? We want them to understand that the wisdom of God is very different from the wisdom of the world. The message of the cross may seem foolish to some, but it is the power of God. We want them to realize that God's ways are not our ways and that we need to trust Him even when we don't understand. We want them to see that God values humility, and that we should not boast in our own wisdom or strength, but in the Lord.
+
+Fourthly, how can we make the sermon relevant and applicable to the lives of the congregation members? We can remind them that the message of the cross is still foolishness to many in the world today. We can encourage them to share the gospel with others, even if they are met with rejection or ridicule. We can also remind them to trust in God's wisdom, even if it goes against what the world considers wise or popular.
+
+Fifthly, what are some potential challenges or objections that someone might have to the message of the sermon, and how can those be addressed? Some may argue that the wisdom of the world has brought about great advancements in science, technology, and medicine. We can acknowledge that these things are important, but they are not the ultimate source of wisdom. We can point out that the wisdom of the world can also lead to great harm, as is evident in the many wars and injustices that have been committed throughout history. We can also remind them that the wisdom of God is not opposed to knowledge or intelligence, but that it transcends them.
+
+Lastly, are there any important theological or doctrinal principles that need to be emphasized or clarified in relation to the passage? We should emphasize that salvation comes through faith in Christ alone, and not through human wisdom or works. We should also clarify that God's wisdom is not arbitrary or capricious, but is based on His holy and righteous character.
+
+In conclusion, let us remember that the wisdom of God is vastly different from the wisdom of the world. We should trust in His wisdom and not our own, and share the message of the cross even when it seems foolish to others. Let us also remember that God values humility, and that we should not boast in our own wisdom or strength, but in the Lord. May God bless each of us as we seek to understand and follow His wisdom. Amen.
+
